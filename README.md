@@ -4,6 +4,8 @@
 - 💞️ I’m looking to collaborate on DroneBlocks
 - I'm learning AI tuning AI models
 - I'm also in creating apps
+- My Youtube Channel - https://youtube.com/playlist?list=PLolVxEMeYvdc3_5RDyHsmNG7du5h2tGAf&si=FwuOd0Z8We7skh3c
+- My Amazon Kindle book - https://www.amazon.com/-/es/Mainak-Ghosh-ebook/dp/B0BZZYWCNS#detailBullets_feature_div
 - I have 18+ years of IT experience
 - Worked on Oracle database
 - Worked on Pega BPM
